@@ -1,8 +1,8 @@
 展示影片 
 
-電腦方先攻：https://www.youtube.com/watch?v=SBygoxAYDag (建議2倍速觀看)
+電腦方先攻： (建議2倍速觀看)
 
-人類方先攻：https://www.youtube.com/watch?v=OKp8qNtLkLk (建議2倍速觀看)
+人類方先攻： (建議2倍速觀看)
 
 
 使用資料 ：
